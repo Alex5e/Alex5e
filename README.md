@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Alex5e I go by Alex
+- 👀 I wanna be a vet
+- 😄 Pronouns: They/Them
+- ⚡ Fun fact: Venus is the only planet to spin clockwise
